@@ -1,0 +1,1 @@
+# bim-35-assets
